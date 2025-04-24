@@ -13,3 +13,8 @@
 
 
 ![Screenshot 2025-04-16 140725](https://github.com/user-attachments/assets/1155605d-2d6c-4689-861b-033b2de36fd8)
+
+# اداره المشاريع
+
+![x](https://github.com/user-attachments/assets/298d6e9d-29ed-48cd-8739-3285b16ef25b)
+
