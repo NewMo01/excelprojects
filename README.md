@@ -18,3 +18,6 @@
 
 ![x](https://github.com/user-attachments/assets/298d6e9d-29ed-48cd-8739-3285b16ef25b)
 
+# حوادث الطرق
+
+![Screenshot 2025-05-16 223753](https://github.com/user-attachments/assets/3183d09e-0c68-458f-bc29-dc793b33cf0b)
